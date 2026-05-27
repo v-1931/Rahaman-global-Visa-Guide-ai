@@ -1,0 +1,1 @@
+🇨🇦 Derived from the Iroquoian word 'Canada', meaning village. Cartier heard the word and it began to appear on maps from the 1550s. Confederation (1867). Ontario, Quebec, Nova Scotia and New Brunswick joined to form a new Dominion, laying the foundation for modern Canada.
